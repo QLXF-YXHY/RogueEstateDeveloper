@@ -2,16 +2,22 @@
 
 		我们是怡莘花园(千林学府)的业主,现就陕西古典房地产开发有限公司不行动、不复工、不交房、不承诺的严重不负责任行为向人民政府提出申诉,切望人民政府以民生为重,以民意为重,为我们主持公道,伸张正义,切实维护我们弱势群体的合法利益。 
 
-事件进程:
+# 事件进程:
 
-楼盘介绍:
+#### 楼盘介绍:
 		千林学府广场位于西咸新区沣西新城,项目物业类型为住宅，由陕西省古典建筑工程公司开发。是集住宅，商业中心、写字楼、学校（幼儿园、小学）、交通枢纽、生态休闲活动等多种业态于一体的住宅社区
 
-楼盘地址: 统一路86号（陕西国际商贸学院南校区大门东侧）
+#### 楼盘地址: 统一路86号（陕西国际商贸学院南校区大门东侧）
 ![楼盘位置图片](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/%E6%A5%BC%E7%9B%98%E5%AE%A3%E4%BC%A0%E7%85%A7%E7%89%87/%E5%9C%B0%E7%90%86%E4%BD%8D%E7%BD%AE.png?raw=true)
 
 楼盘宣传照片
 ![楼盘宣传照片](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/%E6%A5%BC%E7%9B%98%E5%AE%A3%E4%BC%A0%E7%85%A7%E7%89%87/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C%E5%AE%A3%E4%BC%A0%E7%85%A7%E7%89%87.jpg?raw=true)
+
+
+
+
+
+# 但是,就是这个楼盘 烂尾了 ！！！ 
 
 
 
@@ -32,7 +38,7 @@
 14. 2020年6月份，应广大业主建议，给管委会送了[锦旗](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B46%E6%9C%88%E4%BB%BD%E4%B8%9A%E4%B8%BB%E7%BB%99%E7%AE%A1%E5%A7%94%E4%BC%9A%E9%80%81%E5%8E%BB%E4%BA%86%E9%94%A6%E6%97%97/%E9%94%A6%E6%97%97%E5%9B%BE%E7%89%87.jpg?raw=true)  。
 15. 2020年9月份，建筑方停工。
 16. 2002年10月14日，管委会工作专班在售楼部组织 开发商、建筑方、业主代表召开项目推进会，开发商、建筑方双方达成一致意见，[会议纪要图片1](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B410%E6%9C%8814%E4%BC%9A%E8%AE%AE%E7%BA%AA%E8%A6%81/%E7%BA%AA%E8%A6%81%E5%9B%BE%E7%89%871.jpg?raw=true)，[会议纪要图片2](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B410%E6%9C%8814%E4%BC%9A%E8%AE%AE%E7%BA%AA%E8%A6%81/%E7%BA%AA%E8%A6%81%E5%9B%BE%E7%89%872.jpg?raw=true) 。
-17. 2020年10月28日，应市政绿化建设，管委会要求拆除售楼部。
+17. 2020年10月28日，应市政绿化建设，管委会要求拆除售楼部，[图片1](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B410%E6%9C%8828%E6%97%A5%E6%8B%86%E9%99%A4%E5%94%AE%E6%A5%BC%E9%83%A8/%E6%8B%86%E9%99%A4%E7%85%A7%E7%89%871.jpg?raw=true)  [图片2](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B410%E6%9C%8828%E6%97%A5%E6%8B%86%E9%99%A4%E5%94%AE%E6%A5%BC%E9%83%A8/%E6%8B%86%E9%99%A4%E7%85%A7%E7%89%872.jpg?raw=true) 。
 18. 2020年11月6日，管委会工作专班在项目A304房间组织 开发商、建筑方、业主代表召开项目推进会，建筑方同意11.10号交付钥匙，开发商承诺两周左右拿到消防施工图，电力，天然气，暖气陆续施工 明年5月1号之前完工。
 19. 2020年11月10日，建筑方在开发商 业主代表见证下 给管委会交付钥匙。
 20. 2020年12月2日，管委会工作专班在项目A304房间组织 开发商、建筑方、业主代表召开项目推进会，施工方未参加会议，开发商借此推诿，甩锅不能拿到小区消防设计蓝图，故不能施工，电力，天然气，暖气还是上次方案。 （开发商：因施工方不配合月底在各项手续不齐全情况下，业主采取自愿收房）。
@@ -42,7 +48,7 @@
 
 
 
-五证图片：
+# 五证图片：
 
 国有土地使用证
 
@@ -67,4 +73,48 @@
 ![预售许可证](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2018%E5%B9%B46%E6%9C%882%E6%97%A5%E5%9C%A8%E5%94%AE%E6%A5%BC%E9%83%A8%E5%B1%95%E7%A4%BA%E7%9A%84%E4%BA%94%E8%AF%81%E7%85%A7%E7%89%87/%E9%A2%84%E5%94%AE%E8%AE%B8%E5%8F%AF%E8%AF%81.jpg?raw=true)
 
 
+
+
+
+#### 业主维权诉求书：
+
+![诉求书1](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B4%E4%B8%9A%E4%B8%BB%E7%BB%B4%E6%9D%83%E8%AF%89%E6%B1%82%E4%B9%A6/%E8%AF%89%E6%B1%82%E4%B9%A6-%E5%9B%BE%E7%89%871.png?raw=true)
+
+![诉求书2](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B4%E4%B8%9A%E4%B8%BB%E7%BB%B4%E6%9D%83%E8%AF%89%E6%B1%82%E4%B9%A6/%E8%AF%89%E6%B1%82%E4%B9%A6-%E5%9B%BE%E7%89%872.jpg?raw=true)
+
+
+
+#### 5月28日协议照片
+
+![照片1](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B45%E6%9C%8828%E6%97%A5%E6%94%BF%E5%BA%9C%E4%B8%BB%E6%8C%81%E4%B8%89%E6%96%B9%E4%BC%9A%E8%AE%AE/5.28%E5%8D%8F%E8%AE%AE%E7%85%A7%E7%89%871.jpg?raw=true)
+
+![协议2](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B45%E6%9C%8828%E6%97%A5%E6%94%BF%E5%BA%9C%E4%B8%BB%E6%8C%81%E4%B8%89%E6%96%B9%E4%BC%9A%E8%AE%AE/5.28%E5%8D%8F%E8%AE%AE%E7%85%A7%E7%89%872.jpg?raw=true)
+
+
+
+#### 6月10日项目计划
+
+![6.10项目计划](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B46%E6%9C%8810%E6%97%A5%E5%BC%80%E5%8F%91%E5%95%86%E7%BB%99%E5%87%BA%E7%9A%84%E9%A1%B9%E7%9B%AE%E8%AE%A1%E5%88%92/6.10%E9%A1%B9%E7%9B%AE%E8%AE%A1%E5%88%92.jpg?raw=true)
+
+
+
+
+
+#### 感谢信
+
+![感谢信](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B46%E6%9C%88%E4%BB%BD%E4%B8%9A%E4%B8%BB%E7%BB%99%E7%AE%A1%E5%A7%94%E4%BC%9A%E9%80%81%E5%8E%BB%E4%BA%86%E9%94%A6%E6%97%97/%E6%84%9F%E8%B0%A2%E4%BF%A1%E5%9B%BE1.jpg?raw=true)
+
+![感谢信](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B46%E6%9C%88%E4%BB%BD%E4%B8%9A%E4%B8%BB%E7%BB%99%E7%AE%A1%E5%A7%94%E4%BC%9A%E9%80%81%E5%8E%BB%E4%BA%86%E9%94%A6%E6%97%97/%E6%84%9F%E8%B0%A2%E4%BF%A1%E5%9B%BE2.jpg?raw=true)
+
+
+
+![锦旗](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B46%E6%9C%88%E4%BB%BD%E4%B8%9A%E4%B8%BB%E7%BB%99%E7%AE%A1%E5%A7%94%E4%BC%9A%E9%80%81%E5%8E%BB%E4%BA%86%E9%94%A6%E6%97%97/%E9%94%A6%E6%97%97%E5%9B%BE%E7%89%87.jpg?raw=true)
+
+
+
+#### 10.14日会议纪要：
+
+![纪要1](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B410%E6%9C%8814%E4%BC%9A%E8%AE%AE%E7%BA%AA%E8%A6%81/%E7%BA%AA%E8%A6%81%E5%9B%BE%E7%89%871.jpg?raw=true)
+
+![纪要2](https://github.com/QLXFYXHY/RogueEstateDeveloper/blob/master/%E5%8D%83%E6%9E%97%E5%AD%A6%E5%BA%9C(%E5%8E%9F%E5%90%8D%E6%80%A1%E8%8E%98%E8%8A%B1%E5%9B%AD)/2020%E5%B9%B410%E6%9C%8814%E4%BC%9A%E8%AE%AE%E7%BA%AA%E8%A6%81/%E7%BA%AA%E8%A6%81%E5%9B%BE%E7%89%872.jpg?raw=true)
 
